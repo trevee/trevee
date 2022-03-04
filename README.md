@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @yeahimlouis, just call me louis.
+- 👀 Discord: louis.#1337 (665659473422974998)
+- 🌱 I’m currently learning Lua.
+- 👾 here some projects,
+- 🌴 discord.gg/vace # Deputy projectlead & development lead.
+- 🥽 discord.gg/kidu # Team.
+- 🎩 discord.gg/reverse # Team. (soon...)
+- 🥤 discord.gg/unitedv # former project owner.
+- 🧬 discord.gg/y-services # Owner.
+- ☂️ discord.gg/shootcl # Superadmin & development lead. (closed project)
+- 🌚 discord.gg/night-crimelife # prjectlead. (closed project)
+- ⚡ discord.gg/power-dev # Owner (closed project)
